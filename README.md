@@ -1,1 +1,1 @@
-My first readme
+I thank God for today
